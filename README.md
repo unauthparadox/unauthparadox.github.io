@@ -9,5 +9,5 @@ i use he/him pronouns!
 - zionists
 # socials!
 - discord: bearcreekpark (yes that is my actual username)
-- bluesky: https://bsky.app/profile/unauthparadox.xyz
-- twitter: https://twitter.com/unauth_paradox
+- [bluesky](https://bsky.app/profile/unauthparadox.xyz)
+- [twitter](https://twitter.com/unauth_paradox)

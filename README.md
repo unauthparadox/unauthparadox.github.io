@@ -10,4 +10,4 @@ i use he/him pronouns!
 # socials!
 - discord: bearcreekpark (yes that is my actual username)
 - [bluesky](https://bsky.app/profile/unauthparadox.xyz)
-- [twitter](https://twitter.com/unauthparadox)
+- [twitter](https://twitter.com/chunithmverse)

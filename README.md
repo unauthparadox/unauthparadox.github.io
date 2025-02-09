@@ -1,5 +1,5 @@
-## very work in progress! here's my about me tho.
-***hello!*** i am a random minor on the internet that is chronically online on social media.
+### *hello!*
+i am a random minor on the internet that is chronically online on social media.
 
 i play rhythm games, like arcaea, chunithm, vivid/stasis, maimai, phigros, cytus... yeah there's a lot of rhythm games i play!
 

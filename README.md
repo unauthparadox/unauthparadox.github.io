@@ -24,3 +24,4 @@ i use **they/them** and **he/him** pronouns!
 - [bluesky](https://bsky.app/profile/unauthparadox.xyz)
 - [twitter](https://twitter.com/chunithmverse)
 - [github](https://github.com/unauthparadox)
+- <a rel="me" href="https://mas.to/@unauthparadox">mastodon</a>

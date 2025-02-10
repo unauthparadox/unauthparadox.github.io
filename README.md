@@ -23,5 +23,5 @@ i use **they/them** and **he/him** pronouns!
 - discord: bearcreekpark (yes that is my actual username)
 - [bluesky](https://bsky.app/profile/unauthparadox.xyz)
 - [twitter](https://twitter.com/chunithmverse)
-- [github](https://github.com/unauthparadox)
 - <a rel="me" href="https://mas.to/@unauthparadox">mastodon</a>
+- [github](https://github.com/unauthparadox)

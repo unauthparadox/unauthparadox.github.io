@@ -8,7 +8,7 @@ i use **they/them** and **he/him** pronouns!
 # the DNI list
 - homophobes, transphobes, xenophobes, etc.
 - misogynistic people
-- racists, sexists, ableists, people thag discriminate, etc.
+- racists, sexists, ableists, people that discriminate, etc.
 - people that invalidate a person's pronouns/gender/identity
 - pedophiles, sexualizes minors, jokes about r*pe, etc
 - people that support generative AI (AI art, music, etc.)

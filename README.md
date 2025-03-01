@@ -3,7 +3,7 @@ i am a random minor on the internet that is chronically online on social media.
 
 i play rhythm games, like arcaea, chunithm, vivid/stasis, maimai, phigros, cytus... yeah there's a lot of rhythm games i play!
 
-i use **they/them** and **he/him** pronouns!
+i use **he/him** and **they/them** pronouns!
 
 # the DNI list
 - homophobes, transphobes, xenophobes, etc.

@@ -15,10 +15,6 @@ i use **he/him** and **they/them** pronouns!
 - nsfw accounts
 
 
-# current projects
-- **translating ArcCreate to polish!** check out the translation [here](https://github.com/unauthparadox/ArcCreate)
-
-
 # socials!
 - discord: kaleidxscope.
 - [bluesky](https://bsky.app/profile/unauthparadox.xyz)

@@ -18,6 +18,6 @@ i use **he/him** and **they/them** pronouns!
 # socials!
 - discord: kaleidxscope.
 - [bluesky](https://bsky.app/profile/unauthparadox.xyz)
-- [twitter](https://twitter.com/chunixverse)
+- [twitter](https://twitter.com/amereistr)
 - <a rel="me" href="https://mas.to/@unauthparadox">mastodon</a>
 - [github](https://github.com/unauthparadox)
